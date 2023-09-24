@@ -7,8 +7,9 @@
    http://pinoypinayfastfood.com/menu/
 
 2. ## Gerry's Grill
-     <p>Originally opening in 1997 in Quezon City, Phillipines, Gerry's Grill has rapidly expanded outside of the Phillipines and into your local area! Gerry's Grill is a popular restaurant for filipino dishes that </p>
-
+     <p>Originally opening in 1997 in Quezon City, Phillipines, Gerry's Grill has rapidly expanded outside of the Phillipines and into your local area! Gerry's Grill is a popular restaurant for all your filipino favorites. If you want to have a formal sit-down dinner, Gerry's Grill is a popular spot  </p>
+    https://gerrysgrill.com/usa#:~:text=Our%20Story,out%20and%20enjoy%20good%20food.
+    
 4. ## Salo Salo Grill
 
 5. ## Bakers and Baristas
