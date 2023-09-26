@@ -19,5 +19,5 @@
    http://www.bakersandbaristas.net/
 
 6. ## Noy Pitz
-    <p>Noy Pitz is my all-time favorite filipino restaurant in Cerritos. </p>
+    <p>Noy Pitz is my all-time favorite filipino restaurant in Cerritos. Opened by Larry Calonzo and Michael Kwan in April 2018 in West Covina, their restaurant has expanded to different parts of the U.S. Some best-sellers include their Sizzling Pork Sisig and their Crispy Pata. If you aren't a pork lover, they also have beef, chicken, and seafood. Vegetarian? Noypitz also offers traditional filipino vegetable dishes, such as PInakbet, Ginataang Sitaw at Kalabasa, and Adobong Sitaw. They also have different soups, rice, noodles, and house specials. </p>
     https://thenoypitzcerritos.com/
