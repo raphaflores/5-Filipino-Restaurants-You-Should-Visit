@@ -15,9 +15,9 @@
     https://www.salo-salogrill.com/menu
 
 4. ## Bakers and Baristas
-    <p>Bakers and Baristas is not your traditional filipino brunch spot, fusing filipino cuisine with their many dishes. Nonetheless, Bakers and Baristas is the perfect hang-out spot for any meal. Opened by two brothers in 2015, </p>
+    <p>Bakers and Baristas is not your traditional filipino brunch spot, fusing filipino cuisine with their many dishes. Nonetheless, Bakers and Baristas is the perfect hang-out spot for any meal. Opened by two brothers in 2015, this restaurant specializes in breakfast, lunch, or brunch! My personal favorite dish is their Roasted Pork Belly Bowl, which includes garlic rice, fried egg, cabbage slaw, and pork belly! If you're looking into a more traditional filipino breakfast, their Tapsilog is to die for. Marinated sirloin (tapa), white garlic rice, fried egg, with a side of banana ketchup. Bakers and Baristas also have a selection of burritos, pancakes, and toast! Be sure to try their unique collection of coffees and teas. They have different flavors such as Sparkling Matcha Yuzu, Chrysanthemum, Matcha, Vanilla Bean, Honey Lavender, Honey Oat, Salted Caramel, and multiple other options. Bakers and Baristas should be on your list for your next brunch spot! </p>
    http://www.bakersandbaristas.net/
 
 6. ## Noy Pitz
-    <p>Noy Pitz is my all-time favorite filipino restaurant in Cerritos.</p>
+    <p>Noy Pitz is my all-time favorite filipino restaurant in Cerritos. </p>
     https://thenoypitzcerritos.com/
